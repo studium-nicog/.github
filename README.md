@@ -1,1 +1,0 @@
-# Technische Hochschule Nürnberg (Informatik)
